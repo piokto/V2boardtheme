@@ -19,4 +19,4 @@
 - 购买主题赠送面板落地页 or潮汐/bob三端 打包 可换域名
 - 一次更新永久维护 .
 
-## 如需购买请联系[ @daytoo67](https://t.me/daytoo67)
+## 如需购买请联系[ @](https://t.me/sunflowerx7)
